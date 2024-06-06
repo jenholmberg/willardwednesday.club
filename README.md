@@ -2,7 +2,11 @@
 
 ## Looking forward... Next week, June 12th, 2024, we will yet again chill in Willard Park. 
 
-# HISTORY
+
+
+
+  
+# Log
 ## Wednesday, June 5th 2024
 We had our first Willard Wednesday on June 5th, 2024.  
 

@@ -1,5 +1,5 @@
 # willardwednesday.club 🛝
-[[ ![log](log.md)
+[[ [log](log.md) ]]
 ## Looking forward... to next week:
 Next week, on **June 12th**, 2024, we will chill again in Willard Park.  
 We sat at the grey dot on the map below last time -- I'm sure we'll sit somewhere close to here again.  

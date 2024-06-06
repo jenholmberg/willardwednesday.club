@@ -1,4 +1,3 @@
-# willardwednesday.club 🛝
 [[ [log](log.md) ]]
 ## Looking forward... to next week:
 Next week, on **June 12th**, 2024, we will chill again in Willard Park.  

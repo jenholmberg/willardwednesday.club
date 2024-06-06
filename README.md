@@ -1,4 +1,5 @@
 # willardwednesday.club
+# [[ UNDER CONSTRUCTION.. THIS WILL LOOK A BIT BETTER SOON ]] 
 
 ## Looking forward... Next week, June 12th, 2024, we will yet again chill in Willard Park. 
 ...  

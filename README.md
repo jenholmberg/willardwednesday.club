@@ -23,5 +23,5 @@ At the end we contemplated giving out "loser of the week" designation, for the f
 I think people had a good time.... I guess we'll see who shows up again, and judge based simply on that.......
   
 Here are two pictures from this Willard Wednesday:
-![haha](https://raw.githubusercontent.com/jenholmberg/willardwednesday.club/main/img/20240605_1.png?token=GHSAT0AAAAAAB3YC36X7Y2HFBMFZWXJKLYQZTB4SOA)
-![hehe](https://raw.githubusercontent.com/jenholmberg/willardwednesday.club/main/img/20240605_2.png?token=GHSAT0AAAAAAB3YC36X7GCI23WSIU24WMCUZTB4S6A)
+![haha](https://raw.githubusercontent.com/jenholmberg/willardwednesday.club/main/img/20240605_1.png?token=GHSAT0AAAAAAB3YC36WMXZW3RFHAJDCJSI6ZTCJ6PQ)
+![hehe](https://raw.githubusercontent.com/jenholmberg/willardwednesday.club/main/img/20240605_2.png?token=GHSAT0AAAAAAB3YC36WZXWLBHV7JLMKDMDKZTCJ7KQ)

@@ -14,12 +14,12 @@
   
 # Log
 ### Wednesday, June 5th 2024
-We had our first Willard Wednesday on June 5th, 2024.  
+We had our first Willard Wednesday.
 
 We learned that we need to bring sweaters for dusk, that the theme for the summer is "summer", and that dogs should join us.  
 S brought heinies and groc-out snacks, Q brought a soccer ball, everyone else brought good energy. Also some people brought blankets.  
 At the end we contemplated giving out "friend of the week" designation, though I forget what the specific designation was supposed to be...  
-I think people had a good time....
+I think people had a good time.... I guess we'll see who shows up again, and judge based simply on that.......
   
 Here are two pictures from this Willard Wednesday:
 ![haha](https://raw.githubusercontent.com/jenholmberg/willardwednesday.club/main/img/20240605_1.png?token=GHSAT0AAAAAAB3YC36X7Y2HFBMFZWXJKLYQZTB4SOA)

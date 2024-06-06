@@ -10,5 +10,5 @@ We learned that we need to bring sweaters for dusk, that the theme for the summe
 S brought heinies and groc-out snacks, Q brought a soccer ball, everyone else brought good energy.  
 At the end we contemplated giving out "friend of the week" designation, though I forget what the specific designation was supposed to be...  
 Here are two pictures from Willard Wednesday:
-![haha](https://github.com/jenholmberg/willardwednesday.club/blob/main/img/20240605_1.png)
-![hehe](https://github.com/jenholmberg/willardwednesday.club/blob/main/img/20240605_2.png)
+![haha](https://github.com/jenholmberg/willardwednesday.club/blob/main/img/20240605_1.png?raw=true)
+![hehe](https://github.com/jenholmberg/willardwednesday.club/blob/main/img/20240605_2.png?raw=true)

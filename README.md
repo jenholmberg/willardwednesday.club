@@ -8,4 +8,4 @@ Please bring a blanket if you can, as well as a sweater because it gets cold at 
 Feel free to bring a soccer ball, frisbee, whatever.
 And -- excitingly!! -- we're going to grill! So bring some grilling food if you want to partake.
 Hope to see you then!  
-![map](https://github.com/jenholmberg/willardwednesday.club/blob/main/img/20240606_mapofpark.png?raw=true)?raw=true)
+![map](https://github.com/jenholmberg/willardwednesday.club/blob/main/img/20240606_mapofpark.png?raw=true)
